@@ -1,7 +1,7 @@
 ### Hi there 👋
 #### It is a me Nathan! 
 
-![MuaKissGIF](https://github.com/user-attachments/assets/79e75372-b2ad-40f1-936e-6d4eee1f9d5c)
+![MuaKissGIF](https://github.com/user-attachments/assets/79e75372-b2ad-40f1-936e-6d4eee1f9d5c) ![e3d3183cbf78e7838fefe2c470a4127205363ab7_00](https://github.com/user-attachments/assets/2d99a3aa-3637-4e12-a4d5-60c072eec63d)
 
 
 <!--
