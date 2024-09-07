@@ -1,4 +1,6 @@
 ### Hi there 👋
+#### It is a me Nathan! ![MuaKissGIF](https://github.com/user-attachments/assets/79e75372-b2ad-40f1-936e-6d4eee1f9d5c)
+
 
 <!--
 **sholesy/sholesy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
